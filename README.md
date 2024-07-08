@@ -2,4 +2,4 @@
 
 [![GitHub Streak](https://streak-stats.demolab.com?user=Karan-Frost)](https://git.io/streak-stats)
 
-![image](https://github.com/Karan-Frost/Karan-Frost-/assets/159105703/a5829666-4253-4d36-8b49-76bc7ddc97be)
+![image](https://github.com/Karan-Frost/Karan-Frost/assets/159105703/e537ed02-f05f-4311-8631-0aa5d7614ef5)
